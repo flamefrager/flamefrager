@@ -33,4 +33,4 @@
 <br>
 <br>
 </p>
-<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2000&pause=500&color=6eca41&center=true&vCenter=true&width=500&lines=Dikkat+dikkat,+KÖK$VL+geldi.;Varsa+şekerin,+çaya+geçelim;Tamam+da+kanka,+n'alaka?;Çaya+geçelim,+çorbaya+geçelim;Tamam+da+kanka,+n'alaka?;N'alaka?;(-ka,+-ka,+-ka,+-ka,+-ka)+Tamam+da+kanka+(-ka,+-ka-ka-ka);N'alaka?+Kel+alaka;Farketmiyo',+o+alaka;Öyle+söyle'yim,+sen+anla;Sak-sakın+bana+nedenini+sorma+(sakın)."><br>
+<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2200&pause=500&color=6eca41&center=true&vCenter=true&width=700&lines=Gather+round,+I've+got+a+story.;This+isn't+quite+what+you+heard.;Rumors+grow+faster+than+truth.;So+here's+my+little+melody.;Take+it+with+a+grain+of+salt.;Now+back+to+the+show."><br>
