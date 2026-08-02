@@ -1,3 +1,4 @@
+shedledsky retheme oooo oo or mabe pursuerrrr I DON'T KNOWWW
 <p align="center">
 <img width="1185" alt="6635" src="https://github.com/user-attachments/assets/39994e51-572d-4be5-b73a-6f87a478fbdf" />
  <img width="1280"  alt="6634" src="https://github.com/user-attachments/assets/4786178f-3b02-4329-b81e-e7833dcc5183" />
