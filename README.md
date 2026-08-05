@@ -1,33 +1,17 @@
-<p align="center">
-<img width="1280"  alt="1000009031" src="https://github.com/user-attachments/assets/cb3d962f-c9d8-431d-95f9-8322d729d96d" />
-<img width="1280"  alt="1000009030" src="https://github.com/user-attachments/assets/d01a896d-3bee-4b29-826a-dda1c94d17ac" />
+<div align="center">
 
-<br>
-<br>
-<br>
- <img width="135"  alt="1000009027" src="https://github.com/user-attachments/assets/329d3ae5-015e-44f3-b216-f4c0e7eafa81" />
-<img width="135"  alt="1000009028" src="https://github.com/user-attachments/assets/2951a670-4e52-4117-bb1c-4f585ef80455" />
-<br>
-<br>
-<img width="22"  alt="6304" src="https://github.com/user-attachments/assets/461ba538-d141-481f-a7b8-b695081231ea" />
-<img width="22"  alt="6305" src="https://github.com/user-attachments/assets/278c7e72-da03-4edc-8335-c9e609539e6d" />
-<img width="21"  alt="6306" src="https://github.com/user-attachments/assets/7370610f-911a-4546-94df-791dd9781e61" />
-</p>
-<br>
-<br>
-<br>
-</p>
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Wilfies&color=C01E1A&style=flat&base=390000&label=Chicken_Enjoyers" alt="Views"><br>
-<br>
-<br>
-<br>
-<br>
-<img width="99" height="18" alt="1000009037" src="https://github.com/user-attachments/assets/d68fdd04-0aea-438a-b24b-05c9a44822c6" />
-<img width="63" height="18" alt="1000009038" src="https://github.com/user-attachments/assets/43d991fe-ac70-4b72-8ccf-bc4e4b945b80" />
-<img width="63" height="18" alt="1000009039" src="https://github.com/user-attachments/assets/05e8bec0-5f96-461a-8198-86cc0cd549a8" />
+<img align="left" src="wip" alt="decor img" width="50%"/> wip I need to fix da images
+  
+$\color{#FCD9BB}{\textsf{Nate}}$ $\color{#F58727}{\textsf{Ou}}$ $\color{#F79036}{\textsf{Lexi}}$ $\color{#FAC18E}{\textsf{he /}}$ $\color{#F58727}{\textsf{she/it}}$ $\color{#FCD9BB}{\textsf{, pansexual}}$ $\color{#F79036}{\textsf{bigender}}$ $\color{#FCD9BB}{\textsf{, no}}$ $\color{#F58727}{\textsf{dni,}}$ $\color{#F79036}{\textsf{In}}$ $\color{#FAC18E}{\textsf{a}}$ $\color{#F58727}{\textsf{poly}}$ $\color{#FCD9BB}{\textsf{relationship}}$ $\color{#F79036}{\textsf{pls}}$ 
+$\color{#FCD9BB}{\textsf{don't}}$ $\color{#F58727}{\textsf{flirt}}$ $\color{#F79036}{\textsf{in}}$ $\color{#FAC18E}{\textsf{a}}$ $\color{#F58727}{\textsf{serious}}$ $\color{#FCD9BB}{\textsf{way !!}}$ 
 
-<br>
-<br>
-</p>
-<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2200&pause=500&color=A8BFB1&center=true&vCenter=true&width=700&lines=Hey+%23%23%23%23!+(Oh+%23%23%23%23!);What's+the+news+today%3F;I+heard+some+newfound+rumors.;About+our+naive+prey.;Hey+%23%23%23%23!+(Oh+%23%23%23%23!);What+shall+we+say%3F;Let's+spread+this+shocking+scandal.;And+throw+their+lives+away.;Hey+%23%23%23%23!+(Oh+%23%23%23%23!);Did+you+hear+the+tea%3F;On+Tuesday+Neru+told+me.;How+she+saw+them+at+three.;Hey+%23%23%23%23!+(Oh+%23%23%23%23!);How+shall+we+set+free.;Let's+say+we+saw+them+kissing.;A+smash+hit+guarantee."><br>
+<table>
+  <tr>
+    <td>
+      <img src="https://files.catbox.moe/vzf25o.gif" alt="pix"/> ִֶָ♡་༘ $\color{#FCD9BB}{\textsf{layout}}$ $\color{#F58727}{\textsf{made}}$ $\color{#F79036}{\textsf{by}}$ $\color{#FAC18E}{\textsf{Cheriri}}$ $\color{#F58727}{\textsf{hi}}$ $\color{#FCD9BB}{\textsf{hello}}$ $\color{#F79036}{\textsf{cheririii}}$ 
+    </td>
+  </tr>
+</table>
+
+
+<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2200&pause=500&color=FCD9BB&center=true&vCenter=true&width=700&lines=pull+on+my+wires;play+with+my+insides;fuck+my+metals+like+you;MEAN+IT.."><br>
