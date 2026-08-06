@@ -2,6 +2,10 @@
 <img width="1280"  alt="1000009238" src="https://github.com/user-attachments/assets/8b60e441-b85f-48f7-835d-7d09bdc89a6e" />
 <img width="1280"  alt="1000009239" src="https://github.com/user-attachments/assets/736474bd-b39c-4ebc-baa1-1fae03636455" />
 
+<p align="center">
+<a href="https://hits.sh/github.com/staticAngels/"><img alt="Hits" src="https://hits.sh/github.com/staticAngels.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=FCD9BB&labelColor=B74C5F"/></a>
+</p>
+
 <img align="left" src="https://files.catbox.moe/7i84e5.png" alt="decor img" width="50%"/> 
   
 $\color{#FCD9BB}{\textsf{Nate}}$ $\color{#D2C3BC}{\textsf{Ou}}$ $\color{#B74C5F}{\textsf{Lexi}}$ $\color{#FAC18E}{\textsf{he /}}$ $\color{#D2C3BC}{\textsf{she/it}}$ $\color{#FCD9BB}{\textsf{, pansexual}}$ $\color{#B74C5F}{\textsf{bigender}}$ $\color{#FCD9BB}{\textsf{, no}}$ $\color{#D2C3BC}{\textsf{dni,}}$ $\color{#B74C5F}{\textsf{In}}$ $\color{#FAC18E}{\textsf{a}}$ $\color{#D2C3BC}{\textsf{poly}}$ $\color{#FCD9BB}{\textsf{relationship}}$ $\color{#B74C5F}{\textsf{pls}}$ 
