@@ -23,6 +23,7 @@ $\color{#FCD9BB}{\textsf{don't}}$ $\color{#D2C3BC}{\textsf{flirt}}$ $\color{#B74
   </tr>
 </table>
 
+<img width="736" alt="1000009371" src="https://github.com/user-attachments/assets/a848763d-ad44-41b2-b998-a08ffebc267e" />
 
 <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2200&pause=500&color=FCD9BB&center=true&vCenter=true&width=700&lines=I+miss+that+kind+of+misery,;the+kind+where+you+were+nice+to+me.;but+only+in+the+evening+so+I+ask—;am+I+just+dreaming?;I+love+you+so+much+that+it's+dripping;dripping+from+my+arms+and+such;i'm+sorry+I+Know+I'm+too+much;to+love,+to+trust,+im+nothing+but—"><br>
 <img width="1280" alt="1000009240" src="https://github.com/user-attachments/assets/dfa26a1b-9db7-4085-a28e-fe98376c67f8" />
