@@ -6,9 +6,6 @@
 <a href="https://hits.sh/github.com/staticAngels/"><img alt="Hits" src="https://hits.sh/github.com/staticAngels.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=FCD9BB&labelColor=B74C5F"/></a>
 </p>
 
-[reply doc](https://docs.google.com/document/d/1kCzufPaYKlcslq2Kx0rL_m7gaBrGa5r0b8Q7qfvAV44/edit?usp=drivesdk)
-
-
 <img align="left" 
 src="https://files.catbox.moe/7i84e5.png" alt="decor img" width="50%"/> 
   
